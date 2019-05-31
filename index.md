@@ -14,11 +14,17 @@ Per nosaltres també és un factor important la implicació per part de les fam�
 
 ## Com ens organitzem
 **Horari:** De Dilluns a Divendres de 9-15h (Inici Setembre 2019)
+
 **Torns de famílies:** 1 dia/setmana com a suport a les 2 educadores.
+
 **Ratio acompanyants:** 10 infants, 2 educadores i 1 pare/mare
+
 **Àpats:** Les famílies ens organitzem en torns per elaborar cada dia el dinar. Partim de la base d’un menú equilibrat i sa. A part cada infant porta el seu propi esmorzar.
+
 **Assemblees:** Pel bon funcionament del projecte ens reunim en una assamblea mensual d’obligada assistència, on es tractaran temes tant del dia a dia del projecte com pedagògics.
+
 **Comissions:** Al ser un projecte autogestionat per les famílies és important distribuïr les feines equitativament entre les famílies. Per això ens organitzem en comissions de treball on es demana a cada família la participació en alguna d’elles:
+
 * Calendari (de pares/mares i menú)
 * Comunicació (amb Titània, amb l’exterior…)
 * Pedagogía (relació amb les educadores)
