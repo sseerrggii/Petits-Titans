@@ -1,6 +1,5 @@
 ---
-title: Petits Titans
-description: Una nova manera
+title: Sobre nosaltres
 ---
 
 # Petits Titans
