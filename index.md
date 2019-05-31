@@ -1,5 +1,6 @@
 ---
-page.title = "Petits Titans"
+title: Petits Titans
+description: Una nova manera
 ---
 
 # Petits Titans
