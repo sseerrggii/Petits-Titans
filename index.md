@@ -40,10 +40,10 @@ Per a nosaltres també és un factor important la implicació per part de les fa
 ## Fotos del espai
 
 ![espai_comu](/assets/images/espai_comu-750x430.jpg)
+![pati](/assets/images/pati-750x430.jpg)
 ![sala_grups](/assets/images/sala_grups_001-750x430.jpg)
 ![bany_petits](/assets/images/bany_petits.jpg)
 ![cuina](/assets/images/cuina-750x430.jpg)
-![pati](/assets/images/pati-750x430.jpg)
 
 ## Suma't
 
