@@ -6,7 +6,7 @@ description: "Suma't al nostre projecte de criança respectuosa, comencem Setemb
 ## Sobre nosaltres
 Hola famílies!
 
-Ens fa molt feliços presentar-vos Petits Titans, un projecte autogestionat per i per a famílies que volen criar els seus petits d’1 a 3 anys de manera respectuosa i acompanyar-los en els seus ritmes i processos naturals a l’espai de Titània-Tascó, al carrer Llibertat de la Vil·la de Gràcia. Titània-Tascó és una cooperativa de llevadores que atenen parts a domicili i que ens cedeix l’espai durant els matins facilitant-nos el desenvolupament d’aquest projecte.
+Ens fa molt feliços presentar-vos Petits Titans, un projecte autogestionat per i per a famílies que volen criar els seus petits d’1 a 3 anys de manera respectuosa i acompanyar-los en els seus ritmes i processos naturals a l’espai de Titània-Tascó, al carrer Llibertat de la Vila de Gràcia. Titània-Tascó és una cooperativa de llevadores que atenen parts a domicili i que ens cedeix l’espai durant els matins facilitant-nos el desenvolupament d’aquest projecte.
 
 Fa temps que ens reunim en assemblea per definir les nostres necessitats com a tribu i aprendre els uns dels altres, tant de petits com de grans. Aquest projecte va néixer per una banda amb les ganes d’implicar-nos activament en l’educació dels nostr@s fill@s, i per l’altra per créixer i compartir aquest camí amb altres famílies. Creiem en una atenció personalitzada i per aquest motiu apostem per una ràtio (nombre de nen@s per educador@) que permeti una mirada més cuidada als infants en un grup reduït. En aquesta línia, la suma activa i en paral·lel de les educadores és clau per enriquir el projecte.
 
