@@ -39,7 +39,7 @@ Per a nosaltres també és un factor important la implicació per part de les fa
 
 ## Fotos del espai
 
-[bany_petits](/assets/images/bany_petits.jpg)
+![bany_petits](/assets/images/bany_petits.jpg)
 
 ## Suma't
 
