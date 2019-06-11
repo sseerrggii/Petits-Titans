@@ -37,7 +37,7 @@ Per a nosaltres també és un factor important la implicació per part de les fa
 *   Assemblees
 *   Administració (assegurances, gestor, comunicació amb les famílies, material…)
 
-## Fotos del espai
+## Fotos de l'espai
 
 ![espai_comu](/assets/images/espai_comu-750x430.jpg)
 ![pati](/assets/images/pati-750x430.jpg)
