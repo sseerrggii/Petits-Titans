@@ -37,6 +37,10 @@ Per a nosaltres també és un factor important la implicació per part de les fa
 *   Assemblees
 *   Administració (assegurances, gestor, comunicació amb les famílies, material…)
 
+## Fotos del espai
+
+[bany_petits](/assets/images/bany_petits.jpg)
+
 ## Suma't
 
 Ara que el projecte va veient la llum ens agradaria obrir-lo a d’altres famílies que comparteixin aquestes inquietuds i aquesta mirada respectuosa en l’educació. Si t’interessa el projecte , tens disponibilitat, t’agradaria que el teu infant formi part dels Petits Titans i és nascut/da el 2018 ens encantaria conèixer-te i parlar dels detalls. Omple el formulari de pre-inscripció o escriu-nos al correu  [petitstitans@gmail.com](mailto:petitstitans@gmail.com)
