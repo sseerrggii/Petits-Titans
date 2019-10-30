@@ -72,7 +72,7 @@ Además, participar de un proyecto autogestionado supone, sin duda, un crecimien
   * Comando bricolaje (mantenimiento del espacio y material)
   * Administración (seguros, gestor, comunicación con las familias, ...)
 
-Ahora que el proyecto a encontrado la luz nos gustaría abrirlo a otras familias que compartan estas inquietudes y esta mirada respetuosa en la educación. Si te interesa el proyecto, te gustaría que tu niño forme parte de los Pequeños Titanes y es nacido en 2018 o 2019 nuestras puertas están abiertas, nos encantaría conocerte , resolver tus dudas y pasar un rato juntos. 
+**Ahora que el proyecto a encontrado la luz nos gustaría abrirlo a otras familias que compartan estas inquietudes y esta mirada respetuosa en la educación. Si te interesa el proyecto, te gustaría que tu niño forme parte de los Pequeños Titanes y es nacido en 2018 o 2019 nuestras puertas están abiertas, nos encantaría conocerte , resolver tus dudas y pasar un rato juntos.** 
 
-Escríbenos al correo petitstitans@gmail.com
-O contacta a Elisenda en el 664023692
+### Escríbenos al correo petitstitans@gmail.com
+## O contacta a Elisenda en el 664023692
