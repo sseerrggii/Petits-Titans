@@ -1,50 +1,176 @@
 ---
 title: Petits Titans
-description: "Suma't al nostre projecte de criança respectuosa, comencem Setembre 2019"
+description: "Súmate a nuestro proyecto de crianza respetuosa"
 ---
 
-## Sobre nosaltres
-Hola famílies!
+## Crianza segura
 
-Ens fa molt feliços presentar-vos Petits Titans, un projecte autogestionat per i per a famílies que volen criar els seus petits d’1 a 3 anys de manera respectuosa i acompanyar-los en els seus ritmes i processos naturals a l’espai de Titània-Tascó, al carrer Llibertat de la Vila de Gràcia. Titània-Tascó és una cooperativa de llevadores que atenen parts a domicili i que ens cedeix l’espai durant els matins facilitant-nos el desenvolupament d’aquest projecte.
+Durante las  edades más tempranas de nuestros hijos/as, es importante acompañarlos en la difícil tarea de la separación. Es necesario realizar una adaptación progresiva que dé tiempo al niño/a a crear el vínculo emocional  con la educadora y con el resto de las familias de las que se compone el grupo. Por esta razón,  este tipo de crianza segura y respetuosa permite que nuestros hijos/as se adapten de forma natural al nuevo entorno, a la separación física y que aprendan a dar validez y a escuchar sus emociones.
 
-Fa temps que ens reunim en assemblea per definir les nostres necessitats com a tribu i aprendre els uns dels altres, tant de petits com de grans. Aquest projecte va néixer per una banda amb les ganes d’implicar-nos activament en l’educació dels nostr@s fill@s, i per l’altra per créixer i compartir aquest camí amb altres famílies. Creiem en una atenció personalitzada i per aquest motiu apostem per una ràtio (nombre de nen@s per educador@) que permeti una mirada més cuidada als infants en un grup reduït. En aquesta línia, la suma activa i en paral·lel de les educadores és clau per enriquir el projecte.
+Los padres y madres debemos acompañarlos durante el tiempo que necesitemos hasta que el pequeño sienta este nuevo espacio como propio.
 
-Per a nosaltres també és un factor important la implicació per part de les famílies acompanyant els infants i el projecte en tot el que faci falta. Això vol dir participar de les assemblees, assistir presencialment com a suport a les educadores algun matí per setmana, repartir-se tasques de gestió i altres feines relacionades amb el projecte.
+Para nosotros no solo es vital el vínculo que se forma entre las educadoras y los niños, también lo es el vínculo que surge entre las familias y el apego entrañable que nace con los hijos de nuestros compañeros.
 
-## Com ens organitzem?
+## Petit Titans
 
-**Horari**: De Dilluns a Divendres de 9-15h (Inici Setembre 2019)
+![Amasando](assets/images/%20amasandojuntos.JPG)
 
-**Ràtio acompanyants**: 10-12 infants, 2 educadores i 1 pare/mare
+Nuestro proyecto de crianza nace del deseo de un grupo de familias de involucrarse en el proceso evolutivo de sus pequeños desde una mirada amorosa y respetuosa, escuchando de forma atenta sus necesidades y acompañando sus ritmos naturales.
 
-**Torns de famílies**: 1 dia/ setmana com a suport a les 2 educadores.
+Al mismo tiempo necesitamos una alternativa que nos permita
 
-**Àpats**: Les famílies ens organitzem en torns per elaborar cada dia el dinar. Partim de la base d’un menú equilibrat i sa. A part cada infant porta el seu propi esmorzar.
+formar una tribu, construir una gran familia, aprender la una de la otra, compartir las
 
-**Assemblees**: Pel bon funcionament del projecte ens reunim en una assemblea mensual d’obligada assistència, on es tractaran temes tant del dia a dia del projecte com pedagògics.
+luces y las sombras de la ma/paternidad, sentirnos acompañados y divertirnos en
 
-**Comissions**: Al ser un projecte autogestionat per les famílies és important distribuir les feines equitativament entre les famílies. Per això ens organitzem en comissions de treball on es demana a cada família la participació en alguna d’elles:
+familia.
 
+En definitiva, tener un espacio flexible de escucha en el cuál se tengan en
 
+cuenta las necesidades y realidades de cada unidad familiar para no hacer este camino
 
-*   Calendari (de pares/mares i menú)
-*   Comunicació (amb Titània, amb l’exterior…)
-*   Pedagogia (relació amb les educadores)
-*   Economia (cobrar quotes, fer transferències, gestió inversions material, sortides, menjar, etc.)
-*   Mantenimient
-*   Activitats i tallers
-*   Assemblees
-*   Administració (assegurances, gestor, comunicació amb les famílies, material…)
+en solitario.
 
-## Fotos de l'espai
+Creemos que la mejor manera que tiene un niño de desarrollarse es pasando tiempo
 
-![espai_comu](/assets/images/espai_comu-750x430.jpg)
-![pati](/assets/images/pati-750x430.jpg)
-![sala_grups](/assets/images/sala_grups_001-750x430.jpg)
-![bany_petits](/assets/images/bany_petits.jpg)
-![cuina](/assets/images/cuina-750x430.jpg)
+con sus padres, con sus abuelos, con amigos, con otros niños y, en general, con gente
 
-## Suma't
+responsable que se haga cargo en diversos momentos de ese niño y de todos los niños.
 
-Ara que el projecte va veient la llum ens agradaria obrir-lo a d’altres famílies que comparteixin aquestes inquietuds i aquesta mirada respectuosa en l’educació. Si t’interessa el projecte , tens disponibilitat, t’agradaria que el teu infant formi part dels Petits Titans i és nascut/da el 2018 ens encantaria conèixer-te i parlar dels detalls. Omple el [formulari de contacte](https://forms.gle/Ug5y3885Gqy3GqMg6) o escriu-nos al correu  [petitstitans@gmail.com](mailto:petitstitans@gmail.com)
+Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bien sea
+
+porque están lejos o porque se alejan mucho de nuestras creencias y formas de
+
+crianza. Esta iniciativa surge de la voluntad de criar en manada, teniendo en común
+
+una manera de ser o vivir, compartiendo otras formas de ver, pensar y de actuar. Sin
+
+juzgar ni confrontar, encontrando siempre la manera de acompañarnos, apoyarnos,
+
+escucharnos y crecer todos juntos.
+
+## Respeto
+
+( Fotos niños comiendo)
+
+Para nosotros criar de manera respetuosa no tendría sentido si ese respeto no se
+
+hiciera extensivo a todos los ámbitos que nos rodean. Por ello, respetamos las necesidades de cada familia y escuchamos sus inquietudes. Respetamos a las educadoras ofreciéndoles unas condiciones laborales justas que les permita involucrarse de forma activa en el proyecto y dignificando la gran labor que supone la crianza de nuestros hijos/as.
+
+Por último, respetamos el medio ambiente. Reciclamos y reutilizamos. Utilizamos productos naturales , de temporada, ecológicos y de proximidad,  tanto en la limpieza del espacio , como en la alimentación de nuestros pequeños/as.
+
+## Entorno
+
+( Foto entorno general )
+
+Petits Titans comparte espacio con Titània- Tascó, en la calle Llibertat de Vil·la de la
+
+Gràcia. Una cooperativa de matronas que acompañan a las parejas en sus experiencias
+
+del embarazo, parto, y post parto. Titania-Tascó nos ha abierto sus puertas y nos ha
+
+cedido sus espacios durante las mañanas para dar forma y fuerza a este proyecto de
+
+crianza que con tanta ilusión sacamos adelante. Vemos Petits Titans como una
+
+continuación lógica del acompañamiento respetuoso, calmado y personalizado que
+
+ofrece Titania-Tascó.
+
+Petits Titans es un espacio vivo, amoroso y alegre abierto a pequeños de 1 a 3 años. Es
+
+un lugar que nos brinda la posibilidad de ser libres, sentir, expresar emociones,
+
+deseos e inquietudes por medio del otro, elementos que
+
+nos parecen esenciales en estas primeras etapas de la vida.
+
+## Funcionamiento
+
+Es un proyecto autogestionado por y para las familias. Para que esta estructura sea
+
+posible requiere de una implicación del padre y/o madre, que acompañe a los niños y
+
+al proyecto en la medida que pueda involucrarse según su logística. Esto significa:
+
+● Participar en las asambleas mensuales para definir nuestras necesidades y
+
+tomar decisiones todos juntos.
+
+● Asistir (las familias que tengan disponibilidad) presencialmente como apoyo a
+
+las educadoras una mañana por semana (o una parte de la mañana).
+
+● Alternativamente se puede formar parte de una comisión para llevar a cabo
+
+una tarea de gestión y otros roles relacionados con el proyecto.
+
+Formar parte de un proyecto de estas características no solo nos permite un rol activo
+
+en el acompañamiento de nuestros hijos, sino que también nos da la oportunidad de
+
+crear un espacio a nuestra medida que se adapte a las necesidades particulares de
+
+cada familia y a nuestras creencias.
+
+Además, participar de un proyecto autogestionado
+
+supone, sin duda, un crecimiento a nivel personal, en el cual vamos aprendiendo y reinventándonos cada día los unos de los otros, tanto los grandes como los pequeños.
+
+Cómo nos organizamos?
+
+● Horario : De Lunes a Viernes de 9-15h (Inicio Septiembre 2.019)
+
+● Ratio acompañantes : 10-12 niños, 2 educadoras y el apoyo de 1 padre /
+
+madre
+
+● Turnos de familias : 1 día / semana como apoyo a las 2 educadoras (las
+
+familias que tengan disponibilidad).
+
+● Comidas : Las familias nos turnamos para elaborar cada día el
+
+almuerzo. Partimos de la base de un menú equilibrado y sano. 
+
+● Asambleas : Para el buen funcionamiento del proyecto nos reunimos en una
+
+asamblea mensual de obligada asistencia, donde se tratarán temas tanto del día
+
+a día del proyecto como pedagógicos y emocionales.
+
+● Comisiones : Al ser un proyecto auto-gestionado por las familias es
+
+importante distribuir los trabajos equitativamente entre las familias. Por eso
+
+nos organizamos en comisiones de trabajo en las que cada familia participa
+
+según su disponibilidad que puede ir cambiando con el tiempo.
+
+Calendario (de padres / madres y menú)
+
+Comunicación (con Titania, con el exterior)
+
+Pedagogía (comunicación con las educadoras)
+
+Economía (cobrar cuotas, hacer transferencias, gestión inversiones material,
+
+salidas, comida, etc.)
+
+Comando bricolaje (mantenimiento del espacio y material)
+
+Administración (seguros, gestor, comunicación con las familias, ...)
+
+Ahora que el proyecto a encontrado la luz nos gustaría abrirlo a otras familias que
+
+compartan estas inquietudes y esta mirada respetuosa en la educación. Si te interesa
+
+el proyecto, te gustaría que tu niño forme parte de los Pequeños Titanes y es nacido en
+
+2018 o 2019 nuestras puertas están abiertas, nos encantaría conocerte , resolver tus
+
+dudas y pasar un rato juntos. 
+
+Escríbenos al correo petitstitans@gmail.com
+
+O contacta a Elisenda en el 664023692
