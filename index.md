@@ -27,7 +27,7 @@ Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bie
 
 ## Respeto
 
-![Comiendo](assets/images/comiendo.JPG)
+![Karine y niños juego](assets/images/Karine y niños juego.JPG)
 
 Para nosotros criar de manera respetuosa no tendría sentido si ese respeto no se hiciera extensivo a todos los ámbitos que nos rodean. Por ello, respetamos las necesidades de cada familia y escuchamos sus inquietudes. Respetamos a las educadoras ofreciéndoles unas condiciones laborales justas que les permita involucrarse de forma activa en el proyecto y dignificando la gran labor que supone la crianza de nuestros hijos/as.
 
