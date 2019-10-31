@@ -13,7 +13,7 @@ Para nosotros no solo es vital el vínculo que se forma entre las educadoras y l
 
 ## Petit Titans
 
-![Amasando](assets/images/%20amasandojuntos.JPG)
+![Amasando](assets/images/_amasandojuntos.jpg)
 
 Nuestro proyecto de crianza nace del deseo de un grupo de familias de involucrarse en el proceso evolutivo de sus pequeños desde una mirada amorosa y respetuosa, escuchando de forma atenta sus necesidades y acompañando sus ritmos naturales.
 
@@ -27,7 +27,7 @@ Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bie
 
 ## Respeto
 
-![Karine y niños juego](assets/images/Karine%20y%20niños%20juego.JPG)
+![Karine y niños juego](assets/images/Karine%20y%20niños%20juego.jpg)
 
 Para nosotros criar de manera respetuosa no tendría sentido si ese respeto no se hiciera extensivo a todos los ámbitos que nos rodean. Por ello, respetamos las necesidades de cada familia y escuchamos sus inquietudes. Respetamos a las educadoras ofreciéndoles unas condiciones laborales justas que les permita involucrarse de forma activa en el proyecto y dignificando la gran labor que supone la crianza de nuestros hijos/as.
 
@@ -57,7 +57,7 @@ Además, participar de un proyecto autogestionado supone, sin duda, un crecimien
 
 ## Cómo nos organizamos?
 
-![Espacio](assets/images/Musica.JPG)
+![Espacio](assets/images/Musica.jpg)
 
 * Horario : De Lunes a Viernes de 9-15h (Inicio Septiembre 2.019)
 * Ratio acompañantes : 10-12 niños, 2 educadoras y el apoyo de 1 padre /madre
