@@ -39,9 +39,7 @@ Por último, respetamos el medio ambiente. Reciclamos y reutilizamos. Utilizamos
 
 Petits Titans comparte espacio con Titània- Tascó, en la calle Llibertat de Vil·la de la Gràcia. Una cooperativa de matronas que acompañan a las parejas en sus experiencias del embarazo, parto, y post parto. Titania-Tascó nos ha abierto sus puertas y nos ha cedido sus espacios durante las mañanas para dar forma y fuerza a este proyecto de crianza que con tanta ilusión sacamos adelante. Vemos Petits Titans como una continuación lógica del acompañamiento respetuoso, calmado y personalizado que ofrece Titania-Tascó.
 
-Petits Titans es un espacio vivo, amoroso y alegre abierto a pequeños de 1 a 3 años. Es un lugar que nos brinda la posibilidad de ser libres, sentir, expresar emociones,
-
-deseos e inquietudes por medio del otro, elementos que nos parecen esenciales en estas primeras etapas de la vida.
+Petits Titans es un espacio vivo, amoroso y alegre abierto a pequeños de 1 a 3 años. Es un lugar que nos brinda la posibilidad de ser libres, sentir, expresar emociones, deseos e inquietudes por medio del otro, elementos que nos parecen esenciales en estas primeras etapas de la vida.
 
 ## Funcionamiento
 
