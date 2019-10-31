@@ -13,7 +13,7 @@ Para nosotros no solo es vital el vínculo que se forma entre las educadoras y l
 
 ## Petit Titans
 
-![Amasando](assets/images/_amasandojuntos.jpg)
+![Amasando](assets/images/amasandojuntos.jpg)
 
 Nuestro proyecto de crianza nace del deseo de un grupo de familias de involucrarse en el proceso evolutivo de sus pequeños desde una mirada amorosa y respetuosa, escuchando de forma atenta sus necesidades y acompañando sus ritmos naturales.
 
