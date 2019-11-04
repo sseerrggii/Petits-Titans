@@ -11,6 +11,7 @@ Los padres y madres debemos acompañarlos durante el tiempo que necesitemos hast
 
 Para nosotros no solo es vital el vínculo que se forma entre las educadoras y los niños, también lo es el vínculo que surge entre las familias y el apego entrañable que nace con los hijos de nuestros compañeros.
 
+
 ## Petit Titans
 
 ![Amasando](assets/images/amasandojuntos.jpg)
@@ -37,7 +38,7 @@ Por último, respetamos el medio ambiente. Reciclamos y reutilizamos. Utilizamos
 
 ![Espacio](assets/images/Espacio3.jpg)
 
-Petits Titans comparte espacio con Titània- Tascó, en la calle Llibertat de Vil·la de la Gràcia. Una cooperativa de matronas que acompañan a las parejas en sus experiencias del embarazo, parto, y post parto. Titania-Tascó nos ha abierto sus puertas y nos ha cedido sus espacios durante las mañanas para dar forma y fuerza a este proyecto de crianza que con tanta ilusión sacamos adelante. Vemos Petits Titans como una continuación lógica del acompañamiento respetuoso, calmado y personalizado que ofrece Titania-Tascó.
+Petits Titans comparte espacio con Titània- Tascó, en la calle Llibertat de Vil·la de la Gràcia. Una cooperativa de matronas que acompañan a las parejas en sus experiencias del embarazo, parto, y post parto. Vemos Petits Titans como una continuación lógica del acompañamiento respetuoso, calmado y personalizado que ofrece Titania-Tascó.
 
 Petits Titans es un espacio vivo, amoroso y alegre abierto a pequeños de 1 a 3 años. Es un lugar que nos brinda la posibilidad de ser libres, sentir, expresar emociones, deseos e inquietudes por medio del otro, elementos que nos parecen esenciales en estas primeras etapas de la vida.
 
@@ -46,7 +47,7 @@ Petits Titans es un espacio vivo, amoroso y alegre abierto a pequeños de 1 a 3 
 Es un proyecto autogestionado por y para las familias. Para que esta estructura sea posible requiere de una implicación del padre y/o madre, que acompañe a los niños y al proyecto en la medida que pueda involucrarse según su logística. Esto significa:
 
 * Participar en las asambleas mensuales para definir nuestras necesidades y tomar decisiones todos juntos.
-* Asistir (las familias que tengan disponibilidad) presencialmente como apoyo a las educadoras una mañana por semana (o una parte de la mañana).
+* Asistir (las familias que tengan disponibilidad) presencialmente como apoyo a las educadoras una mañana (o una parte de la mañana) cada 15 días.
 * Alternativamente se puede formar parte de una comisión para llevar a cabo una tarea de gestión y otros roles relacionados con el proyecto.
 
 Formar parte de un proyecto de estas características no solo nos permite un rol activo en el acompañamiento de nuestros hijos, sino que también nos da la oportunidad de crear un espacio a nuestra medida que se adapte a las necesidades particulares de cada familia y a nuestras creencias.
@@ -59,8 +60,8 @@ Además, participar de un proyecto autogestionado supone, sin duda, un crecimien
 
 * Horario : De Lunes a Viernes de 9-15h (Inicio Septiembre 2.019)
 * Ratio acompañantes : 10-12 niños, 2 educadoras y el apoyo de 1 padre /madre
-* Turnos de familias : 1 día / semana como apoyo a las 2 educadoras (las familias que tengan disponibilidad).
-* Comidas : Las familias nos turnamos para elaborar cada día el almuerzo. Partimos de la base de un menú equilibrado y sano. 
+* Turnos de familias : 1 día cada 15 días como apoyo a las 2 educadoras (las familias que tengan disponibilidad).
+* Comidas : Las familias nos turnamos para elaborar cada 15 días el almuerzo. Partimos de la base de un menú equilibrado y sano.
 * Asambleas : Para el buen funcionamiento del proyecto nos reunimos en una asamblea mensual de obligada asistencia, donde se tratarán temas tanto del día a día del proyecto como pedagógicos y emocionales.
 * Comisiones : Al ser un proyecto auto-gestionado por las familias es importante distribuir los trabajos equitativamente entre las familias. Por eso nos organizamos en comisiones de trabajo en las que cada familia participa según su disponibilidad que puede ir cambiando con el tiempo.
   * Calendario (de padres / madres y menú)
@@ -70,7 +71,7 @@ Además, participar de un proyecto autogestionado supone, sin duda, un crecimien
   * Comando bricolaje (mantenimiento del espacio y material)
   * Administración (seguros, gestor, comunicación con las familias, ...)
 
-**Ahora que el proyecto a encontrado la luz nos gustaría abrirlo a otras familias que compartan estas inquietudes y esta mirada respetuosa en la educación. Si te interesa el proyecto, te gustaría que tu niño forme parte de los Pequeños Titanes y es nacido en 2018 o 2019 nuestras puertas están abiertas, nos encantaría conocerte , resolver tus dudas y pasar un rato juntos.** 
+**Ahora que el proyecto a encontrado la luz nos gustaría abrirlo a otras familias que compartan estas inquietudes y esta mirada respetuosa en la educación. Si te interesa el proyecto, te gustaría que tu niño forme parte de Petits Titans y es nacido en 2018 o 2019 nuestras puertas están abiertas, nos encantaría conocerte , resolver tus dudas y pasar un rato juntos.** 
 
 ### Escríbenos al correo petitstitans@gmail.com
 ### O contacta a Elisenda en el 664023692
