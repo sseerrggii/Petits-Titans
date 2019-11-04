@@ -44,27 +44,19 @@ Petits Titans és un espai viu, amorós i alegre obert a infants d’ 1 a 3 anys
 
 ## Funcionament
 
-Es un proyecto autogestionado por y para las familias. Para que esta estructura sea posible requiere de una implicación del padre y/o madre, que acompañe a los niños y al proyecto en la medida que pueda involucrarse según su logística. Esto significa:
-
-* Participar en las asambleas mensuales para definir nuestras necesidades y tomar decisiones todos juntos.
-* Asistir (las familias que tengan disponibilidad) presencialmente como apoyo a las educadoras una mañana por semana (o una parte de la mañana).
-* Alternativamente se puede formar parte de una comisión para llevar a cabo una tarea de gestión y otros roles relacionados con el proyecto.
-
-Formar parte de un proyecto de estas características no solo nos permite un rol activo en el acompañamiento de nuestros hijos, sino que también nos da la oportunidad de crear un espacio a nuestra medida que se adapte a las necesidades particulares de cada familia y a nuestras creencias.
-
-Además, participar de un proyecto autogestionado supone, sin duda, un crecimiento a nivel personal, en el cual vamos aprendiendo y reinventándonos cada día los unos de los otros, tanto los grandes como los pequeños.
-
-## Cómo nos organizamos?
-
-![Espacio](assets/images/Musica.jpg)
-
 Es un projecte autogestionat per les famílies. Per tal que aquesta estructura sigui possible, és necessària la implicació del pare i/o mare que acompanyi els infants i el projecte en la mesura que pugui implicar-s’hi segons la seva logística. Això vol dir:
-● Participar en les assemblees mensuals per definir les nostres necessitats i prendre decisions junts.
-● Asistir (les famílies que disposin de disponibilitat) presencialment com a suport a les educadores un matí (o una part del matí) cada 15 dies .
-● Alternativament es pot formar part d’una comissió que dugui a terme una tasca de gestió i altres rols relacionats amb el projecte. 
+
+* Participar en les assemblees mensuals per definir les nostres necessitats i prendre decisions junts.
+* Asistir (les famílies que disposin de disponibilitat) presencialment com a suport a les educadores un matí (o una part del matí) cada 15 dies .
+* Alternativament es pot formar part d’una comissió que dugui a terme una tasca de gestió i altres rols relacionats amb el projecte. 
+
 Formar part d’un projecte d’aquestes característiques no només ens permet un paper actiu en l’acompanyament dels nostres fills i filles, sinó que també ens ofereix l’oportunitat de crear un espai que encaixi amb les necessitats particulars de cada família i que s’adapti a les nostres creences. 
+
 A més a més, participar en un projecte autogestionat aporta un creixement a nivell personal durant el que no parem d’aprendre sobre nosaltres mateixos i dels companys de viatge. 
 
+## Com ens organitzem?
+
+![Espacio](assets/images/Musica.jpg)
 
 Com ens organitzem?
 * Horari: De dilluns a divendres de 9-15h (Inici: septembre de 2019)
