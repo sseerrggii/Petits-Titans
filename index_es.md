@@ -7,9 +7,7 @@ description: "Súmate a nuestro proyecto de crianza respetuosa"
 
 Durante las  edades más tempranas de nuestros hijos/as, es importante acompañarlos en la difícil tarea de la separación. Es necesario realizar una adaptación progresiva que dé tiempo al niño/a a crear el vínculo emocional  con la educadora y con el resto de las familias de las que se compone el grupo. Por esta razón,  este tipo de crianza segura y respetuosa permite que nuestros hijos/as se adapten de forma natural al nuevo entorno, a la separación física y que aprendan a dar validez y a escuchar sus emociones.
 
-Los padres y madres debemos acompañarlos durante el tiempo que necesitemos hasta que el pequeño sienta este nuevo espacio como propio.
-
-Para nosotros no solo es vital el vínculo que se forma entre las educadoras y los niños, también lo es el vínculo que surge entre las familias y el apego entrañable que nace con los hijos de nuestros compañeros.
+Los padres y madres debemos acompañarlos durante el tiempo que necesitemos hasta que el pequeño sienta este nuevo espacio como propio. Para nosotros no solo es vital el vínculo que se forma entre las educadoras y los niños, también lo es el vínculo que surge entre las familias y el apego entrañable que nace con los hijos de nuestros compañeros.
 
 
 ## Petit Titans
