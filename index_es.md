@@ -20,9 +20,7 @@ Al mismo tiempo necesitamos una alternativa que nos permita formar una tribu, co
 
 En definitiva, tener un espacio flexible de escucha en el cuál se tengan en cuenta las necesidades y realidades de cada unidad familiar para no hacer este camino en solitario.
 
-Creemos que la mejor manera que tiene un niño de desarrollarse es pasando tiempo con sus padres, con sus abuelos, con amigos, con otros niños y, en general, con gente responsable que se haga cargo en diversos momentos de ese niño y de todos los niños.
-
-Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bien sea porque están lejos o porque se alejan mucho de nuestras creencias y formas de crianza. Esta iniciativa surge de la voluntad de criar en manada, teniendo en común una manera de ser o vivir, compartiendo otras formas de ver, pensar y de actuar. Sin juzgar ni confrontar, encontrando siempre la manera de acompañarnos, apoyarnos, escucharnos y crecer todos juntos.
+Creemos que la mejor manera que tiene un niño de desarrollarse es pasando tiempo con sus padres, con sus abuelos, con amigos, con otros niños y, en general, con gente responsable que se haga cargo en diversos momentos de ese niño y de todos los niños. Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bien sea porque están lejos o porque se alejan mucho de nuestras creencias y formas de crianza. Esta iniciativa surge de la voluntad de criar en manada, teniendo en común una manera de ser o vivir, compartiendo otras formas de ver, pensar y de actuar. Sin juzgar ni confrontar, encontrando siempre la manera de acompañarnos, apoyarnos, escucharnos y crecer todos juntos.
 
 ## Respeto
 
