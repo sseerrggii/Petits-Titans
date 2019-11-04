@@ -3,7 +3,7 @@ title: Petits Titans
 description: "Súmate a nuestro proyecto de crianza respetuosa"
 ---
 
-## ES Crianza segura
+## Crianza segura
 
 Durante las  edades más tempranas de nuestros hijos/as, es importante acompañarlos en la difícil tarea de la separación. Es necesario realizar una adaptación progresiva que dé tiempo al niño/a a crear el vínculo emocional  con la educadora y con el resto de las familias de las que se compone el grupo. Por esta razón,  este tipo de crianza segura y respetuosa permite que nuestros hijos/as se adapten de forma natural al nuevo entorno, a la separación física y que aprendan a dar validez y a escuchar sus emociones.
 
@@ -33,6 +33,10 @@ Para criar hace falta una tribu entera, pero a menudo no disponemos de ella, bie
 Para nosotros criar de manera respetuosa no tendría sentido si ese respeto no se hiciera extensivo a todos los ámbitos que nos rodean. Por ello, respetamos las necesidades de cada familia y escuchamos sus inquietudes. Respetamos a las educadoras ofreciéndoles unas condiciones laborales justas que les permita involucrarse de forma activa en el proyecto y dignificando la gran labor que supone la crianza de nuestros hijos/as.
 
 Por último, respetamos el medio ambiente. Reciclamos y reutilizamos. Utilizamos productos naturales , de temporada, ecológicos y de proximidad,  tanto en la limpieza del espacio , como en la alimentación de nuestros pequeños/as.
+
+## Pedagogía
+
+Lee el [pdf creado por nuestra educadora Karine](assets/textos%20Karine.pdf)
 
 ## Entorno
 
