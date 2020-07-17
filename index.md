@@ -47,7 +47,7 @@ Petits Titans és un espai viu, amorós i alegre obert a infants d’ 1 a 3 anys
 Es un projecte autogestionat per les famílies. Per tal que aquesta estructura sigui possible, és necessària la implicació del pare i/o mare que acompanyi els infants i el projecte en la mesura que pugui implicar-s’hi segons la seva logística. Això vol dir:
 
 * Participar en les assemblees mensuals per definir les nostres necessitats i prendre decisions junts.
-* Asistir (les famílies que disposin de disponibilitat) presencialment com a suport a les educadores un matí (o una part del matí) cada 15 dies .
+* Asistir (les famílies que disposin de disponibilitat) presencialment com a suport a les educadores un matí (o una part del matí) cada 15 dies.
 * Alternativament es pot formar part d’una comissió que dugui a terme una tasca de gestió i altres rols relacionats amb el projecte. 
 
 Formar part d’un projecte d’aquestes característiques no només ens permet un paper actiu en l’acompanyament dels nostres fills i filles, sinó que també ens ofereix l’oportunitat de crear un espai que encaixi amb les necessitats particulars de cada família i que s’adapti a les nostres creences. 
